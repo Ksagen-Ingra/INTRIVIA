@@ -10,3 +10,6 @@ Intrivia sejauh ini sangat seru dan sangat informatif bagi maba hal ini karena k
 
 ## Kesan Pesan Cluster 11 Sejauh Ini 
 berada di cluster 11 sangat asik, member cluster 11 orangnya ramah ramah dan enak untuk diajak ngobrol. Untuk koor nya juga sangat membantu dalam penyampaian informasi dan sebagai penghubung.
+
+## Harapan Kuliah
+menjadi seseorang yang lebih berkembang lagi kedepannya, meraih banyak hal yang ingin dicapai misal ikut berkontribusi. yang lain mungkin ingin ikut lomba untuk mendapat pengalaman dan prestasi. harapan lainnya juga sih ingin ipk bagus.
